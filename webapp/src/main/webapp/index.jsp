@@ -1,1 +1,1 @@
-lets
+Lest play the game!
